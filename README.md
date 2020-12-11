@@ -1,4 +1,4 @@
-# Phase 1 Guide
+# Phase 1 Caleb
 
 ## Course Outline
 
